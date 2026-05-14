@@ -1,4 +1,4 @@
-#  
+#  Experience one tap like never before with smart Script for one tap, the #1 Script. Includes aimbot and teleport for unbeatable performance.
 
 
 
